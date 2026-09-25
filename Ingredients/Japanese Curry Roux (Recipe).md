@@ -1,6 +1,6 @@
 # Context
 
-This is my recipe for Japanese curry roux, though I only really recommend making it if you cant find a store that sells it, the store-bought version is usually better
+This is my recipe for Japanese curry roux, though I only really recommend making it if you cant find a store that sells it, the store bought version (which you can buy here: [[Japanese Curry Roux]]) is usually better
 # Recipe
 **Prep Time:** 1min
 **Cook Time:** 5 min
