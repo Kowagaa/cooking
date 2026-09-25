@@ -5,7 +5,7 @@ This is my recipe for Japanese curry roux, though I only really recommend making
 **Prep Time:** 1min
 **Cook Time:** 5 min
 **Total:** 6 min
-**Difficulty:** (             ⭐⭐/⭐⭐⭐⭐⭐)
+**Difficulty:** (                ⭐⭐/⭐⭐⭐⭐⭐)
 ## Materials
 - A pan
 - A spatula
